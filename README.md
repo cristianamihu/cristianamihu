@@ -7,5 +7,3 @@ Currently a second-year student pursuing a Computer Science Bachelor Degree at B
 Learn more about my experience through my resume: 
 
 📫 How to reach me: cristianamihu18@gmail.com
-
-[![174857](https://raw.githubusercontent.com/cristianamihu/main/cristianamihu/174857.png)](https://www.linkedin.com/in/cristiana-maria-mihu-228436189/)
