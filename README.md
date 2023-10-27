@@ -8,4 +8,4 @@ Learn more about my experience through my resume:
 
 📫 How to reach me: cristianamihu18@gmail.com
 
-[![174857](https://raw.github.com/cristianamihu/cristianamihu/assets/128689630/0ea874df-d799-4951-a383-6b457d6f3391.png)](https://www.linkedin.com/in/cristiana-maria-mihu-228436189/)
+[![174857](https://raw.githubusercontent.com/cristianamihu/cristianamihu/assets/128689630/0ea874df-d799-4951-a383-6b457d6f3391.png)](https://www.linkedin.com/in/cristiana-maria-mihu-228436189/)
