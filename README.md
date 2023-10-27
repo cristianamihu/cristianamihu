@@ -8,4 +8,4 @@ Learn more about my experience through my resume:
 
 📫 How to reach me: cristianamihu18@gmail.com
 
-https://github.com/onigaandreea?fbclid=IwAR3R7TlQdKg5Jp0SzxbRcu1k1f41acC42xkrHEsNG4pOO8TeaJIxjEF7hzI#connect-with-me
+
