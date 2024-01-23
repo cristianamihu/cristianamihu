@@ -2,7 +2,7 @@
 
                                                          👋 Hi, I’m Cristiana
 
-Currently a second-year student pursuing a Computer Science Bachelor Degree at Babeș-Bolyai University📚 
+Currently a second-year student pursuing a Computer Science Bachelor Degree at Babeș-Bolyai University of Cluj-Napoca📚 
 
 Learn more about my experience through my resume: 
 
