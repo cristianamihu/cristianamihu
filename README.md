@@ -4,6 +4,6 @@
 
 Currently a second-year student pursuing a Computer Science Bachelor Degree at Babeș-Bolyai University of Cluj-Napoca📚 
 
-Learn more about my experience through my resume: 
+Learn more about my experience through my resume: [Uploading CV -Cristiana-Maria Mihu.pdf…]()
 
 📫 How to reach me: cristianamihu18@gmail.com
