@@ -4,7 +4,8 @@
 
 Currently a third-year student pursuing a Computer Science Bachelor Degree at Babeș-Bolyai University of Cluj-Napoca📚 
 
-Learn more about my experience through my resume: [CV - Mihu Cristiana-Maria.pdf](https://github.com/cristianamihu/cristianamihu/files/14947915/CV.-.Mihu.Cristiana-Maria.pdf)
+Learn more about my experience through my resume: [Mihu Cristiana-Maria - CV.pdf](https://github.com/user-attachments/files/21211287/Mihu.Cristiana-Maria.-.CV.pdf)
+
  
 
 
