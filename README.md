@@ -2,7 +2,7 @@
 
                                                          👋 Hi, I’m Cristiana
 
-Currently a third-year student pursuing a Computer Science Bachelor Degree at Babeș-Bolyai University of Cluj-Napoca📚 
+Computer Science Graduate, currently pursuing a Master's Degree in Databases at Babeș-Bolyai University of Cluj-Napoca📚 
 
 Learn more about my experience through my resume: [Mihu Cristiana-Maria - CV.pdf](https://github.com/user-attachments/files/21211287/Mihu.Cristiana-Maria.-.CV.pdf)
 
